@@ -1,0 +1,1 @@
+Need curd, rice, salt, water and some fruits.
